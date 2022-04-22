@@ -1,2 +1,2 @@
-# she-her-it-s-aly
+# she/her — it's aly
 attracted to stars
